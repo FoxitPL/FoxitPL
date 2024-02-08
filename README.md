@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @FoxitPL
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning html/css/ja
-- 📫 How to reach me ...
+- 📫 How to reach me Dicord:foxit._.
